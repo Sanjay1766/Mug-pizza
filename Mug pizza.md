@@ -1,0 +1,1 @@
+Mug pizza recipe | pizza in microwave recipe | 2 mins mug pizza cake with detailed photo and video recipe. a simple, easy and quick veg pizza recipe prepared with a coffee mug in microwave within 2 minutes. this is a ideal pizza for serving for an individual which can easily quench the thirst of cheese and pizza in minutes.
